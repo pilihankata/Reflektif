@@ -1,1 +1,1 @@
-# Website-Reflektif tidak ada negosiasi dalam tragedi
+#tidak ada negosiasi dalam tragedi
